@@ -35,4 +35,4 @@ When I'm not coding or gaming, I’m probably rewatching Naruto for the hundredt
 
 _“Hard work is worthless for those that don’t believe in themselves.” – Naruto Uzumaki_
 
-![Naruto](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExemEwYzdyODk1a3J4YXU5dzM3aW82a2FjcGRjbTNjZ3BhbDdjM21sbCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/aYZk0UdmwGQ2k/giphy.gif)
+![Naruto](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExbmZsMnlpZzBvNXlkdTlubTRvY3Roc2pwZzB2MGhtZXUzbnF2bzJrbCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Yv6RcuiyHYmn6/giphy.gif)
